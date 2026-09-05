@@ -1,1 +1,1 @@
-# Eduart-kangaroo-3D
+# Eduart-Squirrel-3D
